@@ -1,2 +1,1 @@
-# Clash-Nyanpasu
-Clash Nyanpasu 下载软件教程分享
+# Clash Nyanpasu 下载软件教程分享
